@@ -1,0 +1,1 @@
+Sebuah catatan kecil dari, oleh dan untuk ku..
